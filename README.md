@@ -1,3 +1,4 @@
+<img width="606" height="575" alt="Homework3" src="https://github.com/user-attachments/assets/786ddf0e-4f67-4de9-a4ec-0ad70aff817c" />
 
 
 
